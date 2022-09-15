@@ -1,2 +1,2 @@
-# Fish Love Stoty
+# Fish Love Story
 Zhen502
